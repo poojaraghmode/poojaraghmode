@@ -12,4 +12,4 @@ putting together my skills and hard work.
 - 📫 How to reach me: 
      - Mail me at - poojaraghmode05@gmail.com
      - Connect with me on LinkedIn - https://www.linkedin.com/in/raghmode/
-- ⚡ Fun fact: My perfect day would start with *smiling* and end with *smiling*.:smile:
+- ⚡ Fun fact: My perfect day would start with *smile* and end with *smile*.:smile:
