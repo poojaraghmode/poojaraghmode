@@ -7,7 +7,7 @@ putting together my skills and hard work.
 
 - 🔭 I’m currently working on our BE project **WebVote**
 - 🌱 I’m currently learning Blockchain & Web Development
-- 👯 I’m looking to collaborate on future projects with @SnehalChodankar
+- 👯 I’m looking to collaborate on future projects with @SnehalChodankar & @KapilRaghmode
 - 💬 Ask me about Engineering Life at Goa University. :stuck_out_tongue_winking_eye:
 - 📫 How to reach me: 
      - Mail me at - poojaraghmode05@gmail.com
