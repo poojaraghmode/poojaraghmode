@@ -12,4 +12,4 @@ putting together my skills and hard work.
      - Mail me at - poojaraghmode05@gmail.com
      - Connect with me on LinkedIn - https://www.linkedin.com/in/raghmode/
 - ⚡ Fun fact: My perfect day would start with *smile* and end with *smile*.:smile:
-- <!--- 👯 I’m looking to collaborate on future projects with @SnehalChodankar & @KapilRaghmode-->
+<!--- 👯 I’m looking to collaborate on future projects with @SnehalChodankar & @KapilRaghmode-->
